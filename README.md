@@ -1,6 +1,6 @@
 # Uh-hi-guys-my-mood
 (This is for rmk [?]) 
-
+[beepbeep] .  hey! is 20:25(8:25pm) go to sleep! is not time to play!"
 
 
 
@@ -10,7 +10,7 @@
 
 
 
-.  **may everyone forgive you.** 💤
+(.  **may everyone forgive you.** 💤) 
 
 >> . 💤Renzi / Ori / Zeta⚡ <<
 
